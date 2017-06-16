@@ -9,3 +9,10 @@ ché la diritta via era smarrita.
 Ahi quanto a dir qual era è cosa dura
 esta selva selvaggia e aspra e forte
 che nel pensier rinova la paura!
+
+Ma poi ch'i' fui al piè d'un colle giunto,
+là dove terminava quella valle
+che m'avea di paura il cor compunto,
+guardai in alto e vidi le sue spalle
+vestite già de' raggi del pianeta
+che mena dritto altrui per ogne calle.
