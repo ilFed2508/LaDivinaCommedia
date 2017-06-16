@@ -10,7 +10,7 @@ Ahi quanto a dir qual era è cosa dura
 esta selva selvaggia e aspra e forte
 che nel pensier rinova la paura!
 
-Ma poi ch'i' fui al piè d'un colle giunto,
+Ma poi che io fui al piè d'un colle giunto,
 là dove terminava quella valle
 che m'avea di paura il cor compunto,
 guardai in alto e vidi le sue spalle
